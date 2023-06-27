@@ -1,2 +1,2 @@
 # what-is-this
-Explanations of the past and present meanings of the term "Common English" and the reason to create this virtual organization.
+Historically, the term "Common English" has been associated with the meaning of "language of the commoners" or "language of the common people." It referred to the everyday language spoken by ordinary people rather than the language used by the aristocracy or the educated elite. However, language and its meanings can evolve over time, and in contemporary usage, "Common English" does not carry the same connotation.
